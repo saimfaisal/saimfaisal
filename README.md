@@ -6,6 +6,7 @@
 - 🌱 I’m currently learning **BS IT**
 
 - 📫 How to reach me **saimfaisal.offical.com@g,ail.com**
+-  All of my projects are available at ** https://www.linkedin.com/in/saim-faisal-69593a286/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
